@@ -1,4 +1,3 @@
 # comercioelectronico
 Hola guapo :)
-
-Mi Orbelina 
+Hoy es 02 de mayo del 2018.
